@@ -1,6 +1,4 @@
-https://github.com/user-attachments/assets/30c1da1b-215d-4d2a-8f93-b190bf68cd26
-
-https://github.com/user-attachments/assets/9411c354-d727-4119-a161-0370e1b03ba8
+https://github.com/user-attachments/assets/07f2fb0d-9846-4b9c-b002-28c99f55e7fb
 
 🧪 Tabela Periódica – Visualização Interativa dos Elementos
 
